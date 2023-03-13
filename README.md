@@ -1,5 +1,0 @@
-# I0322101_Rafif-Mar-ie-Firdaus_Praktikum-Prokom
-Praktikum Prokom Rafif
-Kelas C
-Praktikum Jam 1
-Hari rabu
